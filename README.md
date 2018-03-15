@@ -1,3 +1,3 @@
                                                 ProductProphet
 
-                                                for all your ecommerce needs
+                                          for all your ecommerce needs
